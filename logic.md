@@ -8,4 +8,7 @@ Nuestro objetivo es formar a grandes profesionales, y tú podrías ser el próxi
 
 [Clase en línea](https://www.youtube.com/live/dAZxEmCtY5k?si=ltTbxjRkhf8CTcMS)
 
-PROBLEMA DE PRODUCCION ARREGLADO
+
+## Comienza tu carrera tecnológica con nosotros
+ 
+¿Aún no lo tienes claro? Estos son algunos motivos para que elijas a CodeForTheSpace como la escuela tecnológica que te ayudará a impulsar tu carrera.

@@ -7,3 +7,5 @@ Nuestro objetivo es formar a grandes profesionales, y tú podrías ser el próxi
 ### Puedes acceder a una de nuestras clases online: 
 
 [Clase en línea](https://www.youtube.com/live/dAZxEmCtY5k?si=ltTbxjRkhf8CTcMS)
+
+PROBLEMA DE PRODUCCION ARREGLADO
